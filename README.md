@@ -6,3 +6,4 @@
 
 На фото я и один из любимых авто
 
+https://github.com/Tabaskov/about-me/blob/main/IMG_0081.JPG
